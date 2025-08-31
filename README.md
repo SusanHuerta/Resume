@@ -3,6 +3,12 @@
 ## 🧠 Summary
 Strategic HR leader and bilingual communicator (English/Spanish) with global experience in talent acquisition, internal communications, and employee engagement. Passionate about building authentic cultures, optimizing workflows, and infusing warmth into every interaction.
 
+## ✨ Superpowers  
+- 🧭 People Whisperer: HR Strategy, Culture Design, Employee Experience  
+- 🧠 Customer-Centric Thinker: CX Strategy, Empathy-Driven Innovation, Brand Loyalty  
+- 🎙 Communication-Driven Strategist: Messaging, Brand Voice, Behavioral Influence  
+- 🧩 Clarity-Focused Operator: Agile Leadership, Project Execution, Results-Driven Strategy
+  
 ---
 
 ## 💼 Work Experience
