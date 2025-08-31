@@ -53,6 +53,15 @@ Strategic HR leader and bilingual communicator (English/Spanish) with global exp
 |-----------------------------------|-----------------------------|
 | **Messaging Strategy \| Brand Voice \| Behavioral Influence**<br>▸ I turn insight into influence through strategic storytelling.<br>▸ I craft narratives that transform, connect, and reflect mission.<br>▸ I understand human behavior and use it to drive action. | **Project Execution \| Agile Leadership \| Results-Driven Strategy**<br>▸ I simplify complexity and drive results with precision.<br>▸ I lead cross-functional teams and streamline workflows.<br>▸ I keep momentum aligned with mission and impact. |
 
+## ✨ My Superpowers
+
+| 🧭 People Whisperer | 🧠 Customer-Centric Thinker |
+|---------------------|-----------------------------|
+| **HR Strategy · Culture Design · Employee Empowerment**<br>▸ I design environments where people feel seen, supported, and included.<br>▸ I build systems that nurture belonging and elevate performance.<br>▸ I specialize in retention frameworks and employee development. | **CX Strategy · Empathy-Driven Innovation · Brand Loyalty**<br>▸ I translate empathy into business advantage.<br>▸ I bridge internal culture with external brand.<br>▸ I align feedback loops with purpose-driven service to deepen connection. |
+
+| 🎙 Communication-Driven Strategist | 🧩 Clarity-Focused Operator |
+|-----------------------------------|-----------------------------|
+| **Messaging Strategy · Brand Voice · Behavioral Influence**<br>▸ I turn narratives into transformation, not trickery.<br>▸ I craft messages that transform, connect, and reflect mission.<br>▸ I understand human behavior and use it to drive action. | **Project Execution · Agile Leadership · Results-Driven Strategy**<br>▸ I prioritize clarity and drive results with precision.<br>▸ I lead cross-functional teams and streamline workflows.<br>▸ I keep momentum aligned with mission and impact. |
 
 ## 💼 Work Experience
 
