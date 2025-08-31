@@ -47,11 +47,12 @@ Strategic HR leader and bilingual communicator (English/Spanish) with global exp
 
 | 🧭 **People Whisperer** | 🧠 **Customer-Centric Thinker** |
 |-------------------------|-------------------------------|
-| **HR Strategy · Culture Design · Employee Empowerment**<br><br>▸ I design environments where people feel seen, supported, and included.<br>▸ I build systems that nurture belonging and elevate performance.<br>▸ I support inclusive and equitable employee experiences. | **CX Strategy · Empathy-Driven Innovation · Brand Loyalty**<br><br>▸ I translate empathy into better products and services.<br>▸ I design feedback loops with purpose-driven signals.<br>▸ I align product experience with brand promise. |
+| **HR Strategy · Culture Design · Employee Empowerment**<br><br>▸ I create environments where people feel seen and supported.<br>▸ I build systems that foster belonging and boost performance.<br>▸ I champion inclusive and equitable employee experiences. | **CX Strategy · Empathy-Driven Innovation · Brand Loyalty**<br><br>▸ I turn empathy into better products and services.<br>▸ I design feedback loops with purpose-driven signals.<br>▸ I align product experience with brand promise. |
 
 | 🎙 **Communication-Driven Strategist** | 🧩 **Clarity-Focused Operator** |
 |---------------------------------------|-------------------------------|
-| **Messaging Strategy · Brand Voice · Behavioral Influence**<br><br>▸ I turn narratives into transformation, not trickery.<br>▸ I craft messages that resonate, connect, and reflect.<br>▸ I influence behavior and use words with precision. | **Project Execution · Agile Leadership · Results-Driven Strategy**<br><br>▸ I execute with rigor and deliver results with precision.<br>▸ I lead cross-functional teams and streamline execution.<br>▸ I keep momentum aligned with mission and strategy. |
+| **Messaging Strategy · Brand Voice · Behavioral Influence**<br><br>▸ I turn narratives into transformation, not trickery.<br>▸ I craft messages that resonate, connect, and reflect.<br>▸ I influence behavior with precision and purpose. | **Project Execution · Agile Leadership · Results-Driven Strategy**<br><br>▸ I execute with rigor and deliver results with clarity.<br>▸ I lead cross-functional teams and streamline execution.<br>▸ I keep momentum aligned with mission and strategy. |
+
 
 ## 💼 Work Experience
 
