@@ -8,6 +8,41 @@ Strategic HR leader and bilingual communicator (English/Spanish) with global exp
 - **🧠 Customer-Centric Thinker:** CX Strategy, Empathy-Driven Innovation, Brand Loyalty  
 - **🎙 Communication-Driven Strategist:** Messaging, Brand Voice, Behavioral Influence  
 - **🧩 Clarity-Focused Operator:** Agile Leadership, Project Execution, Results-Driven Strategy
+
+  ## ✨ My Superpowers
+
+---
+
+### 🧭 **People Whisperer**  
+**HR Strategy | Culture Design | Employee Empowerment**  
+▸ I design environments where people feel seen, supported, and inspired to thrive.  
+▸ I build systems that nurture belonging and elevate performance.  
+▸ I specialize in retention frameworks and development plans.
+
+---
+
+### 🧠 **Customer-Centric Thinker**  
+**CX Strategy | Empathy-Driven Innovation | Brand Loyalty**  
+▸ I translate empathy into business advantage.  
+▸ I bridge internal culture with external experience.  
+▸ I align feedback loops with purpose-driven service to deepen connection.
+
+---
+
+### 🎙 **Communication-Driven Strategist**  
+**Messaging Strategy | Brand Voice | Behavioral Influence**  
+▸ I turn insight into influence through strategic storytelling.  
+▸ I craft narratives that transform, connect, and reflect mission.  
+▸ I understand human behavior and use it to drive action.
+
+---
+
+### 🧩 **Clarity-Focused Operator**  
+**Project Execution | Agile Leadership | Results-Driven Strategy**  
+▸ I simplify complexity and drive results with precision.  
+▸ I lead cross-functional teams and streamline workflows.  
+▸ I keep momentum aligned with mission and impact.
+
   
 ---
 
