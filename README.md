@@ -1,4 +1,4 @@
-# 💼 Susan Huerta — Resume
+# Susan Huerta — Resume
 
 ## 🧠 Summary
 Strategic HR leader and bilingual communicator (English/Spanish) with global experience in talent acquisition, internal communications, and employee engagement. Passionate about building authentic cultures, optimizing workflows, and infusing warmth into every interaction.
@@ -73,10 +73,39 @@ _Remote | December 2021 – March 2022_
 
 ---
 
-## 🌐 Languages & Tools
+## 🛠️ Skills & Certifications
 
-- **Languages:** English 🇺🇸 | Spanish 🇵🇪  
-- **Tools:** Trello, Canva, SurveyMonkey, HubSpot, LinkedIn Sales Navigator, Salesforce, Shopify  
+### 🔹 Core Competencies
+- Global Project Coordination  
+- Talent Acquisition & Recruitment Strategy  
+- Stakeholder Engagement & Relationship Management  
+- Process Optimization & Workflow Efficiency  
+- Strategic Communication  
+- Problem-Solving & Adaptability  
+- Leadership & Team Development  
+- Data-Driven Decision Making & Analytics  
+
+### 💻 Technical Proficiency
+- Google Workspace  
+- Microsoft Office (PowerPoint, Excel, Word)  
+- Canva, Zoom  
+- LinkedIn Sales & LinkedIn Recruiter  
+- HubSpot, Shopify  
+- SurveyMonkey, Trello  
+
+### 🌐 Languages
+- Fluent in English 🇺🇸  
+- Native Spanish 🇵🇪  
+
+### 📜 Certifications
+| Certification | Issuing Organization | Date |
+|---------------|----------------------|------|
+| SHRM-SCP | SHRM | May 2025 |
+| SPHR | HRCI | April 2025 |
+| SPHRi | HRCI | April 2025 |
+| GPHR | HRCI | April 2025 |
+| Google Project Management | Google | August 2025 |
+| Google Data Analytics | Google | August 2025 |
 
 ---
 
