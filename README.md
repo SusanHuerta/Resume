@@ -92,6 +92,8 @@ _Remote | December 2021 – March 2022_
 - LinkedIn Sales & LinkedIn Recruiter  
 - HubSpot, Shopify  
 - SurveyMonkey, Trello  
+- Notion, WordPress  
+- Calendly, Slack
 
 ### 🌐 Languages
 - Fluent in English 🇺🇸  
