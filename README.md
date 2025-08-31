@@ -55,6 +55,16 @@ Strategic HR leader and bilingual communicator (English/Spanish) with global exp
 |----------------------------------------|---------------------------------|
 | **Messaging Strategy · Brand Voice · Behavioral Influence**<br><br>▸ I turn narratives into transformation, not trickery.<br>▸ I craft messages that transform, connect, and reflect.<br>▸ I influence how humans behave and use to drive action.   | **Project Execution · Agile Leadership · Results-Driven Strategy**<br><br>▸ I prioritize clarity and drive results with precision.<br>▸ I lead cross-functional teams and streamline workflows.<br>▸ I keep momentum aligned with mission and impact. |
 
+## ✨ My Superpowers
+
+| 🧭 **People Whisperer** | 🧠 **Customer-Centric Thinker** |
+|-------------------------|-------------------------------|
+| **HR Strategy · Culture Design · Employee Empowerment**<br><br>▸ I design environments where people feel seen, supported, and included.<br>▸ I build systems that nurture belonging and elevate performance.<br>▸ I support inclusive and equitable employee experience. | **CX Strategy · Empathy-Driven Innovation · Brand Loyalty**<br><br>▸ I translate empathy into better products.<br>▸ I design feedback loops with purpose-driven signals.<br>▸ I align feedback loops with purpose-driven service design. |
+
+| 🎙 **Communication-Driven Strategist** | 🧩 **Clarity-Focused Operator** |
+|---------------------------------------|-------------------------------|
+| **Messaging Strategy · Brand Voice · Behavioral Influence**<br><br>▸ I turn narratives into transformation, not trickery.<br>▸ I craft messages that resonate, connect, and reflect.<br>▸ I influence behavior and use words with precision. | **Project Execution · Agile Leadership · Results-Driven Strategy**<br><br>▸ I prioritize clarity and drive results with precision.<br>▸ I lead cross-functional teams and streamline workflows.<br>▸ I keep momentum aligned with mission and impact. |
+
 ## 💼 Work Experience
 
 ### **Yango** — *HR Coordinator*  
