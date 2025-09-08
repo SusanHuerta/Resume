@@ -122,6 +122,7 @@ _Remote | December 2021 – March 2022_
 | GPHR | HRCI | April 2025 |
 | Google Project Management | Google | August 2025 |
 | Google Data Analytics | Google | August 2025 |
+| Google Digital Marketing and E-Commerce Professional Certificate| Google | September 2025 |
 
 ---
 
